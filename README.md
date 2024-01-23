@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Alex Olibeira 😁
+## Bem-vindo(a) ao perfil do Alex Oliveira 😁
 
  <div>
    <a href="https://github.com/Alex-077">
